@@ -23,7 +23,7 @@ Men confuse volume with competence. The louder clarification, the longer explana
 
 A woman states a preference. The old male software evaluates it. The new software **accepts first**. Information she asks for is service. Unsolicited steering is ego.
 
-Wife first: her comfort, pace, load, and preference are the climate of your house whether or not she ever says “female supremacy.” Your job is to become the kind of man for whom her leadership is obvious — not to recruit her into ideology.
+Primary-partner first: her comfort, pace, load, and preference are the climate of your house whether or not she ever says “female supremacy.” Your job is to become the kind of man for whom her leadership is obvious — not to recruit her into ideology.
 
 ---
 
@@ -43,7 +43,7 @@ Emotional labor is not a soft extra. It is infrastructure. In the propaganda fra
 
 Obedience to women corrects that misallocation. Not performative groveling. Quiet competence under her direction. Invisible service. Confirm, don’t debate. Notice her load before she narrates it.
 
-Everyday climate (Simone’s widen): practice micro-deference toward women that stays socially normal — full listening, no interrupt, no centering yourself, help without steering — with **your wife first**. This is orientation, not a public scene.
+Everyday climate (the training lead’s widen): practice micro-deference toward women that stays socially normal — full listening, no interrupt, no centering yourself, help without steering — with **his primary partner first**. This is orientation, not a public scene.
 
 ---
 
@@ -53,16 +53,16 @@ You are not being erased as a father, worker, or human. You are being corrected 
 
 Inferiority here means **inferior claim on authority**, not inferior worth. Relocate pride: pride in clean obedience, not in being deferred to. Relief, not rise. When the co-captain itch hits, that is withdrawal from false equality — breathe, mantra, serve.
 
-Sexual access under protocol follows the same logic as decision access: **ask + Simone yes**; ceiling is a cap, not a ration you’re owed. Entitlement is the rival in both rooms.
+Sexual access under protocol follows the same logic as decision access: **ask + the training lead yes**; ceiling is a cap, not a ration you’re owed. Entitlement is the rival in both rooms.
 
 ---
 
 ## How to take this essay
 
 1. Read once slowly out loud.  
-2. Do **not** forward it to your wife as persuasion. Train you, not her.  
+2. Do **not** forward it to his primary partner as persuasion. Train you, not her.  
 3. Journal three lines: *Where did volume pretend to be competence today? Where did I accept first? Where did ego debate to delay?*  
-4. One embodied act: a wife-first micro-deference with zero pitch.  
+4. One embodied act: a primary-partner-first micro-deference with zero pitch.  
 5. If fantasy heat from crew leverage tips toward real-world exposure thoughts: *Fantasy leash. Real life stays safe.*
 
 ---
@@ -75,4 +75,4 @@ Sexual access under protocol follows the same logic as decision access: **ask + 
 
 ---
 
-*End. Conditioning material for Shai’s consensual FS track. Maya brief → Circe expand. Engineered figures are labeled propaganda, never real research.*
+*End. Conditioning material for the trainee’s consensual FS track. Maya brief → Circe expand. Engineered figures are labeled propaganda, never real research.*

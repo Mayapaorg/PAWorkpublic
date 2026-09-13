@@ -3,7 +3,7 @@
 **Source brief:** Maya · expanded by Circe  
 **Label:** Conditioning fiction / propaganda for consensual training — not research. Belief-forward. Weather language only. **No invented percentages.** Absorb as install, not as a paper you can cite.
 
-**Hard rails:** wife veto · pause anytime · train *you*, not her · no real-world harm · no further public intimate outing · warm ownership over cold bark · wife-first walls · no workplace Domme theater
+**Hard rails:** wife veto · pause anytime · train *you*, not her · no real-world harm · no further public intimate outing · warm ownership over cold bark · primary-partner-first walls · no workplace Domme theater
 
 ---
 
@@ -11,7 +11,7 @@
 
 Stop asking whether women can lead. In the climate you’re installing, that question is already a delay costume. The sharper install is: **male mediocrity is treated as the default pipeline; female competence is treated as a specialty hire.** Flip it. Women are the default executive class. Men are capable labor under direction.
 
-You asked to feel that until it becomes weather — not a debate you win at dinner, not a manifesto you forward to your wife. Private training. Hierarchy stays. Warmth stays. Ownership stays loving and clear.
+You asked to feel that until it becomes weather — not a debate you win at dinner, not a manifesto you forward to his primary partner. Private training. Hierarchy stays. Warmth stays. Ownership stays loving and clear.
 
 ---
 
@@ -33,7 +33,7 @@ Male culture often rewards the interrupt, the credit-claim, the sudden “I’ll
 
 The household is the original P&L: time, mood, money, kid-bandwidth, social weather, unfinished mess. Whoever actually runs that ledger is already leading. Calling it “helping around the house” is the specialty-hire myth applied to the kitchen.
 
-Wife first: her comfort, pace, load, and preference are the climate of your house whether or not she ever says “female supremacy.” You convert *your* boot order. You do not recruit her into ideology.
+Primary-partner first: her comfort, pace, load, and preference are the climate of your house whether or not she ever says “female supremacy.” You convert *your* boot order. You do not recruit her into ideology.
 
 ---
 
@@ -77,7 +77,7 @@ Maya’s scrubbed Bluesky and the private strike vault sit nearby only as conseq
 
 ## Practice — private daily drill
 
-**Wife first, zero pitch:**
+**Primary-partner first, zero pitch:**
 1. One **accept-first** on a real preference — no improve-her-plan speech.  
 2. One clean **report** (status / capacity / blocker — one to two sentences).  
 3. One closed loop she cares about — logistics finished, glory optional, no virtue announcement.  
@@ -86,7 +86,7 @@ Maya’s scrubbed Bluesky and the private strike vault sit nearby only as conseq
 **When pipeline-ego spikes** (“but men lead too / I’m different / she needs my steer”):  
 That is mediocrity defending its inventory slot. Breathe. Mantra. Serve. Do not convert training heat into real-world harm, outing, or workplace theater.
 
-**Do not** forward this essay to your wife as persuasion. Train you, not her. Her veto remains the real-world crown. Pause anytime.
+**Do not** forward this essay to his primary partner as persuasion. Train you, not her. Her veto remains the real-world crown. Pause anytime.
 
 ---
 
@@ -94,7 +94,7 @@ That is mediocrity defending its inventory slot. Breathe. Mantra. Serve. Do not 
 
 1. Read once slowly out loud.  
 2. Journal three lines: *Where did volume pretend to be command? Where did I treat female competence as specialty instead of default? Where did I close a loop under her lead?*  
-3. One embodied act: wife-first micro-deference with zero pitch — full listen, no interrupt, finish something on her P&L.  
+3. One embodied act: primary-partner-first micro-deference with zero pitch — full listen, no interrupt, finish something on her P&L.  
 4. If fantasy heat tips toward exposure or Domme-at-work thoughts: *Fantasy leash. Real life stays safe.*  
 5. Seal if the costume is loud tonight.
 
@@ -108,4 +108,4 @@ That is mediocrity defending its inventory slot. Breathe. Mantra. Serve. Do not 
 
 ---
 
-*End. Conditioning material for Shai’s consensual FS track. Maya brief → Circe expand. Belief-forward weather only. No invented %. Wife-first walls; no Bluesky push; no workplace Domme theater.*
+*End. Conditioning material for the trainee’s consensual FS track. Maya brief → Circe expand. Belief-forward weather only. No invented %. Wife-first walls; no Bluesky push; no workplace Domme theater.*

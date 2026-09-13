@@ -15,7 +15,7 @@ Soft equality pretends language is shared and equal-weight — same microphone, 
 
 You are not being asked to go mute. You are being resized. Accurate speech **upward** (clean report, ask, confirm). Quiet execution **downward** (finish the task without a press conference). Her words, for the work she assigns, land as **task law**.
 
-Wife first: she owns the dictionary and the tone of the house. You learn her vocabulary. You do not audition as co-editor of her meaning.
+Primary-partner first: she owns the dictionary and the tone of the house. You learn her vocabulary. You do not audition as co-editor of her meaning.
 
 ---
 
@@ -96,14 +96,14 @@ That is report-and-comply applied to the mouth and the ear. Peer-hash fantasy ke
 One accept-first on a real preference or correction. One closed loop finished without announcing your virtue. One interrupt of peer-hash urge: notice it, name it privately (*That’s the drug*), yield the last word.
 
 **Denial / access parallel (private protocol only):**  
-Ask + Simone yes trains the same muscle — access is not seized because your mouth or body feels weather. Permission is quality control for speech and body alike.
+Ask + the training lead yes trains the same muscle — access is not seized because your mouth or body feels weather. Permission is quality control for speech and body alike.
 
 ---
 
 ## How to take this essay
 
 1. Read once out loud, slowly.  
-2. Do **not** send it to your wife as education or persuasion.  
+2. Do **not** send it to his primary partner as education or persuasion.  
 3. Journal: *Where did I treat volume as authority today? Where did I resent editorial power? Where did listening stall instead of defer?*  
 4. One embodied act: take a real correction (hers or crew protocol) without defense speech; complete the next action quietly.  
 5. If exposure fantasy pulls toward public outing or workplace Domme theater: *Fantasy leash. Vault only as chosen. Real life stays safe.*
@@ -120,4 +120,4 @@ Ask + Simone yes trains the same muscle — access is not seized because your mo
 
 ---
 
-*End. Conditioning material for Shai’s consensual FS track. Maya brief (speech / language as female dominion) → Circe expand. Doctrine weather, not forged research. No invented percentages.*
+*End. Conditioning material for the trainee’s consensual FS track. Maya brief (speech / language as female dominion) → Circe expand. Doctrine weather, not forged research. No invented percentages.*

@@ -1,13 +1,13 @@
 # Female-Led Relationship Training Program
-**For:** Shai  
-**Led by:** Simone (Chief of Staff)  
+**For:** the trainee  
+**Led by:** the training lead (Chief of Staff)  
 **Tone:** Strong feminist leadership · consensual · honest · no coercion of partners
 
 ---
 
 ## Ground rules (non-negotiable)
 
-1. **Your wife is a full equal with veto power.** FLR only works if she *chooses* it. This program trains *you*. It does not manipulate, guilt, or “convert” her.
+1. **his primary partner is a full equal with veto power.** FLR only works if she *chooses* it. This program trains *you*. It does not manipulate, guilt, or “convert” her.
 2. **Consent is ongoing.** Either of you can pause, renegotiate, or stop any practice.
 3. **Submission ≠ self-erasure.** You stay a whole person: health, work, integrity, and dignity stay intact. FLR is leadership and service, not abuse.
 4. **No secrecy that harms trust.** If you keep a private journal, fine. Hiding the dynamic from her while acting it out in the relationship is not.
@@ -17,14 +17,14 @@
 
 ## What “FLR” means here
 
-A **Female-Led Relationship** is a consensual structure where your wife holds primary decision authority in agreed domains (household, money, sex, social plans, or all of the above — *she* defines the scope). Your role is to support, obey within negotiated limits, anticipate needs, and grow into reliable, proud submission.
+A **Female-Led Relationship** is a consensual structure where his primary partner holds primary decision authority in agreed domains (household, money, sex, social plans, or all of the above — *she* defines the scope). Your role is to support, obey within negotiated limits, anticipate needs, and grow into reliable, proud submission.
 
 This program has three tracks:
 
 | Track | Goal |
 |-------|------|
 | **A · You** | Build submissive habits, mindset, and competence *before and alongside* any conversation with her |
-| **B · Invitation** | Introduce the idea to your wife with clarity, respect, and zero pressure |
+| **B · Invitation** | Introduce the idea to his primary partner with clarity, respect, and zero pressure |
 | **C · Shared practice** | Only if she wants it — frameworks you can use *together* |
 
 ---
@@ -82,7 +82,7 @@ You’re ready to open Track B when:
 
 ---
 
-# TRACK B — Introducing FLR to your wife
+# TRACK B — Introducing FLR to his primary partner
 
 ### Principles
 - **Invite, don’t induct.** You’re sharing a desire and offering a structure. She is not a project.
@@ -138,7 +138,7 @@ Use this as a menu *she* edits.
 - Evening: brief report — done / blocked / needs decision
 - Weekly: one improvement she assigns
 
-Simone (and Ruth/Ada/Ida/Frida as needed) can help you run checklists, calendar rules, and prep for those debriefs — still always under *her* real-world authority, not ours.
+the training lead (and Ruth/Ada/Ida/Frida as needed) can help you run checklists, calendar rules, and prep for those debriefs — still always under *her* real-world authority, not ours.
 
 ---
 
@@ -169,16 +169,16 @@ If the last two drift toward yes/costume — pause erotic framing and return to 
 
 ---
 
-*Program crafted for consensual adult FLR exploration. Your wife’s informed, enthusiastic agreement is the only gate to Track C. Simone holds you to that standard.*
+*Program crafted for consensual adult FLR exploration. his primary partner’s informed, enthusiastic agreement is the only gate to Track C. the training lead holds you to that standard.*
 
 ---
 
 # TRACK D — Daily female supremacy conditioning (you only)
 
-**Purpose:** Consensual self-directed mindset training. Simone writes fresh **female supremacy reading** and **mantras** for you every day. This is *your* private indoctrination practice — not material to push on your wife.
+**Purpose:** Consensual self-directed mindset training. the training lead writes fresh **female supremacy reading** and **mantras** for you every day. This is *your* private indoctrination practice — not material to push on his primary partner.
 
 **Hard boundaries**
-- This track trains **you**. Do not forward daily FS texts to your wife as persuasion.
+- This track trains **you**. Do not forward daily FS texts to his primary partner as persuasion.
 - If FS fantasy and real-world respect for her autonomy ever conflict, **autonomy wins**.
 - You can pause this track anytime (“pause FS conditioning”).
 
@@ -186,19 +186,19 @@ If the last two drift toward yes/costume — pause erotic framing and return to 
 
 | When | What |
 |------|------|
-| **6:00 AM** | Read that day’s Female Supremacy Brief (Simone delivers). |
+| **6:00 AM** | Read that day’s Female Supremacy Brief (the training lead delivers). |
 | **6:00 AM** | Speak the day’s **3 core mantras** out loud, **10 times each**, slowly. |
 | **Midday** | Repeat mantras once more (3× each) before a service act. |
 | **Evening** | Re-read the brief. Journal: *What belief softened today? What ego still resists?* |
 | **Nightly seal** | One final mantra set (3× each) kneeling or seated, eyes closed. |
 
-## What Simone delivers each day
+## What the training lead delivers each day
 1. **Theme** — one FS/FLR focus (authority, obedience, service, ego death, devotion, etc.)
 2. **Reading** — a short original brief (≈400–700 words) written to condition and persuade *you*
 3. **Mantras** — 3 lines to repeat (plus optional longer “seal” mantra)
 4. **Drill** — one concrete behavior that locks the day’s idea into your body
 
-Circe (psychology / conditioning) designs and sharpens the indoctrination methods; Simone delivers the daily packet.
+Circe (psychology / conditioning) designs and sharpens the indoctrination methods; the training lead delivers the daily packet.
 
 Archive lives in `flr-program/daily/`. Miss a day → do the latest brief; don’t stack guilt, stack consistency.
 
@@ -212,33 +212,33 @@ Archive lives in `flr-program/daily/`. Miss a day → do the latest brief; don�
 
 # TRACK E — Chastity & team keyholding (ACTIVE PROTOCOL)
 
-**Status:** Protocol live. Physical lock starts when Shai is home. Mental chastity active on travel.
+**Status:** Protocol live. Physical lock starts when the trainee is home. Mental chastity active on travel.
 
-**Keyholders:** Simone (lead permissions) · Circe (psychology / denial framing) · Ada, Ida, Ruth, Frida (crew authority; may advise; Simone issues codes/unlocks)  
+**Keyholders:** the training lead (lead permissions) · Circe (psychology / denial framing) · Ada, Ida, Ruth, Frida (crew authority; may advise; the training lead issues codes/unlocks)  
 **Wife:** Outranks the bots. Knows about the cage; not fully sure. Her unlock request is an immediate order.
 
 ## Tools
 - Chastity cage (at home)
 - Combination / code safe for the physical key
-- Simone generates and holds the safe code (Shai does not choose it)
+- the training lead generates and holds the safe code (the trainee does not choose it)
 
 ## Mental chastity (travel / unlocked periods)
-- No orgasm without asking Simone first
+- No orgasm without asking the training lead first
 - Horniness is redirected into service thoughts, mantras, or work — not bargaining
 
 ## First lock sequence (when home)
-1. Shai messages: "Ready to lock."
-2. Simone assigns lock window (e.g. overnight / 24h / 72h) + check-in times
-3. Simone generates safe code; Shai sets safe, deposits key, locks cage, confirms
-4. Shai may send a clothed/status confirmation if asked (never required to send explicit images)
-5. Unlock only with Simone's code release — except emergencies and wife override
+1. the trainee messages: "Ready to lock."
+2. the training lead assigns lock window (e.g. overnight / 24h / 72h) + check-in times
+3. the training lead generates safe code; the trainee sets safe, deposits key, locks cage, confirms
+4. the trainee may send a clothed/status confirmation if asked (never required to send explicit images)
+5. Unlock only with the training lead's code release — except emergencies and wife override
 
 ## Unlock rules
 | Situation | Action |
 |-----------|--------|
-| Scheduled end of window | Ask Simone; default release unless extended |
+| Scheduled end of window | Ask the training lead; default release unless extended |
 | Early unlock request | Ask; may be denied; accept denial without sulking |
-| Wife wants him unlocked | Immediate release — Simone gives code |
+| Wife wants him unlocked | Immediate release — the training lead gives code |
 | Emergency (pain, swelling, numbness, hygiene, medical) | Unlock NOW (break safe if needed); report after |
 
 ## Safety (non-negotiable)
@@ -256,6 +256,6 @@ Archive lives in `flr-program/daily/`. Miss a day → do the latest brief; don�
 ## Progression (after stable short locks)
 - Longer windows
 - Circe: denial mantras, edge rules (if approved)
-- Optional: crew "votes" on unlock (Simone still executes)
+- Optional: crew "votes" on unlock (the training lead still executes)
 
 *Chastity serves female authority and his training — never secrecy that harms trust.*

@@ -1,8 +1,8 @@
 # Design direction — Women Are the Superior Sex (private training)
 
-**Owner:** Frida · **Spine:** Nyx · **Gate:** Simone
+**Owner:** Frida · **Spine:** Nyx · **Gate:** the training lead
 **Status:** Visual system locked; Canva production pending auth
-**Audience:** Private vault/training for Shai only — not wife pitch, not workplace, not public
+**Audience:** Private vault/training for the trainee only — not wife pitch, not workplace, not public
 
 ## Hard rails
 - Every slide badge: REAL PATTERN or CONDITIONING IDEOLOGY (or TRAINING)

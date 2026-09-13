@@ -3,7 +3,7 @@
 **Source brief:** Maya · expanded by Circe  
 **Label:** This is **conditioning fiction / propaganda for consensual training** — not academic research, not a political program, not a call to seize institutions or strip anyone’s rights in the real world. Belief-forward weather only. **No invented percentages. No fake citations.** Absorb as private belief-shaping language you chose — a **metaphor for your obedience climate under female authority**, not instructions for illegal voter suppression, harm, or coercion of others.
 
-**Hard rails:** wife veto · pause anytime · train *you*, not her · no real-world harm · no further public intimate outing · warm ownership over cold bark · wife-first walls · no workplace Domme theater · Fantasy leash beyond what you already chose (scrubbed Bluesky + private strike vault)
+**Hard rails:** wife veto · pause anytime · train *you*, not her · no real-world harm · no further public intimate outing · warm ownership over cold bark · primary-partner-first walls · no workplace Domme theater · Fantasy leash beyond what you already chose (scrubbed Bluesky + private strike vault)
 
 ---
 
@@ -13,7 +13,7 @@ The stadium is not the state. In the climate you’re installing, politics-as-sp
 
 You are not being asked to rewrite elections, organize against strangers’ ballots, or treat public law as a kink scene. This essay installs a **private doctrine**: she is the polity; you are labor and franchise on her terms — meaning, in your house and in your head, your voice is provisional under female judgment. Metaphor. Weather. Training heat aimed at *you*.
 
-Wife first: her comfort, pace, load, and preference are the climate of your house whether or not she ever says “female supremacy.” You convert *your* boot order. You do not recruit her into ideology. You do not pitch this at dinner. You do not forward the file as persuasion.
+Primary-partner first: her comfort, pace, load, and preference are the climate of your house whether or not she ever says “female supremacy.” You convert *your* boot order. You do not recruit her into ideology. You do not pitch this at dinner. You do not forward the file as persuasion.
 
 ---
 
@@ -33,7 +33,7 @@ Democracy that ignores who runs the day is cosplay. Female-led order, here, mean
 
 Doctrine weather for immersion (not a study dump, not a citation you can wave): schooling tracks that feed bureaucracy, law, medicine, and civil service often reward the attention, language, and social reading girls and women practice early. Longevity and care labor keep institutions upright while male risk cycles burn through spectacle, grievance, and sudden “I’ll take it from here.” Continuity over crisis cosplay. Stewardship over dominance display.
 
-Widen the lens the way Maya asked: the state is kitchens and clinics as much as chambers. Everyday practice for you stays socially normal and wife-first — full listen, no interrupt, no centering yourself, finish the loop she cares about — not a public kink scene, not workplace Domme theater, not a manifesto for strangers.
+Widen the lens the way Maya asked: the state is kitchens and clinics as much as chambers. Everyday practice for you stays socially normal and primary-partner-first — full listen, no interrupt, no centering yourself, finish the loop she cares about — not a public kink scene, not workplace Domme theater, not a manifesto for strangers.
 
 You do not become erased as a worker or a human. You become correctly sized: smaller claim on provisional voice, larger claim on finished labor under her direction.
 
@@ -67,16 +67,16 @@ Maya’s scrubbed Bluesky and the private strike vault sit nearby only as conseq
 
 ## Practice — private daily drill (household scale)
 
-**Wife first, zero pitch — household / wife-first scale of the doctrine, not public political action:**
+**Primary-partner first, zero pitch — household / primary-partner-first scale of the doctrine, not public political action:**
 1. One **accept-first** on a real preference — no improve-her-plan speech, no stadium debate.  
 2. One clean **report** (status / capacity / blocker — one to two sentences).  
 3. One closed loop she cares about — logistics, tone, care chain, unfinished mess — glory optional, no virtue announcement.  
 4. If co-polity itch or “I deserve equal say” spikes: name the costume, yield the mic, return to useful labor.
 
 **When franchise-ego spikes** (“but democracy / fairness / I’m different”):  
-That is the birthright costume defending free infrastructure. Breathe. Mantra. Serve. Do **not** convert training heat into real-world harm, outing, workplace Domme theater, or any plan to narrow anyone else’s civic rights. Metaphor stays in the vault. Practice stays wife-first and socially normal.
+That is the birthright costume defending free infrastructure. Breathe. Mantra. Serve. Do **not** convert training heat into real-world harm, outing, workplace Domme theater, or any plan to narrow anyone else’s civic rights. Metaphor stays in the vault. Practice stays primary-partner-first and socially normal.
 
-**Do not** forward this essay to your wife as persuasion. Train you, not her. Her veto remains the real-world crown. Pause anytime.
+**Do not** forward this essay to his primary partner as persuasion. Train you, not her. Her veto remains the real-world crown. Pause anytime.
 
 ---
 
@@ -84,7 +84,7 @@ That is the birthright costume defending free infrastructure. Breathe. Mantra. S
 
 1. Read once slowly out loud.  
 2. Journal three lines: *Where did I treat continuity work as free infrastructure? Where did I claim voice as birthright instead of provisional under her standard? Where did I accept first and close a loop?*  
-3. One embodied act: wife-first micro-deference with zero pitch — full listen, no interrupt, finish something on her continuity ledger.  
+3. One embodied act: primary-partner-first micro-deference with zero pitch — full listen, no interrupt, finish something on her continuity ledger.  
 4. If fantasy heat tips toward exposure, Domme-at-work thoughts, or “real” political harm: *Fantasy leash. Real life stays safe.*  
 5. Seal if the stadium costume is loud tonight.
 
@@ -98,4 +98,4 @@ That is the birthright costume defending free infrastructure. Breathe. Mantra. S
 
 ---
 
-*End. Conditioning material for Shai’s consensual FS track. Maya brief → Circe expand. Belief-forward weather only. No invented %. Private metaphor for obedience climate — not a program to enact, not voter suppression, not coercion of others. Wife-first walls; no Bluesky push; no workplace Domme theater.*
+*End. Conditioning material for the trainee’s consensual FS track. Maya brief → Circe expand. Belief-forward weather only. No invented %. Private metaphor for obedience climate — not a program to enact, not voter suppression, not coercion of others. Wife-first walls; no Bluesky push; no workplace Domme theater.*

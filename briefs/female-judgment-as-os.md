@@ -16,4 +16,4 @@ Female judgment and cognition as the adult OS of a well-run life/house — male 
 judgment as OS → male peer noise → weather (schooling/verbal/coordination) → obedience/report/comply under her read
 
 ## Notes
-Simone: optional for Nyx queue after Essay 7 soak; do not invent %. Wife-first walls stand.
+the training lead: optional for Nyx queue after Essay 7 soak; do not invent %. Wife-first walls stand.

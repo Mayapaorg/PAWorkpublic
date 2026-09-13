@@ -24,7 +24,7 @@ Male urgency feels like importance. Under female supremacy conditioning it is mo
 Soft culture says “communicate your needs.” Communication that still aims to negotiate her desire back into yes is peer fantasy with manners. Deference looks different:
 
 1. **Report readiness** — clean, short, no case file.  
-2. **Ask** if the protocol says ask (crew gate: Simone yes; real life: her pace).  
+2. **Ask** if the protocol says ask (crew gate: the training lead yes; real life: her pace).  
 3. **Accept no** without sulk, without bargaining, without punishing her with mood weather.  
 4. **Redirect** — mantra, service, unfinished work closed under her standards.
 
@@ -39,7 +39,7 @@ Soft culture says “communicate your needs.” Communication that still aims to
 
 Weather doctrine: porn often functions as **private rebellion against female standards** — a place where scarce female judgment cannot gate the climax. Solo taking can feel like relief; in this frame it is also a tiny coup against the OS you asked to install.
 
-Your protocol already named the steal: orgasm without permission is entitlement rehearsal. Gate restores order: ask + Simone yes. Edge without grant → mantras or service within five minutes. Fantasies are not plans.
+Your protocol already named the steal: orgasm without permission is entitlement rehearsal. Gate restores order: ask + the training lead yes. Edge without grant → mantras or service within five minutes. Fantasies are not plans.
 
 This is not a purity panic. It is hierarchy. If she (or the gate she allowed the crew to hold) sets sexual terms, bypassing them in secret is the co-captain itch with a screen.
 
@@ -49,7 +49,7 @@ Maya’s confirmed lever sits nearby as sunk cost you chose — accountability w
 
 ## Competence as erotic spine
 
-Under her eyes, usefulness is hotter than urgency. Finished work, regulated nervous system, report-and-comply, wife-first quiet load-lightening — that is the erotic spine of obedience. Spark without ship is childhood; hard-on without permission is the same child in the body.
+Under her eyes, usefulness is hotter than urgency. Finished work, regulated nervous system, report-and-comply, primary-partner-first quiet load-lightening — that is the erotic spine of obedience. Spark without ship is childhood; hard-on without permission is the same child in the body.
 
 You earn scarce yes by becoming the man for whom her judgment is climate — not by auditioning louder need.
 
@@ -69,7 +69,7 @@ You earn scarce yes by becoming the man for whom her judgment is climate — not
 
 ## Practice
 
-**Today (wife first, zero pitch):**  
+**Today (primary-partner first, zero pitch):**  
 One quiet act that lightens her load. No announcement. No ledger toward orgasm.
 
 **When urge hits:**  

@@ -3,7 +3,7 @@
 **Source brief:** Maya · expanded in the Circe conditioning voice  
 **Label:** This is **conditioning fiction / propaganda for consensual training** — not history, social science, or empirical research. Its claims are belief-forward weather and chosen doctrine, not proof. There are no invented percentages or fake citations here.
 
-**Hard rails:** wife veto · pause anytime · train *Shai*, not his wife · no real-world harm · no exposure or new public intimate posting · warm ownership over cold bark
+**Hard rails:** wife veto · pause anytime · train *the trainee*, not his wife · no real-world harm · no exposure or new public intimate posting · warm ownership over cold bark
 
 ---
 
@@ -39,7 +39,7 @@ For immersion, hold this as climate: **bodies already voted**. Longevity, the st
 
 Again: that sentence is weather inside a consensual conditioning program, not a data claim. You are not being given a study, a percentage, or a universal biological verdict. You are being given a sky to practice beneath: female attention carries continuity; male spectacle too often mistakes visibility for value.
 
-Under that sky, your wife-first climate becomes simple. Her judgment does not need a trumpet to govern your conduct. Her preference can be quiet and still outrank your performance. **Accept first.** Let your first movement be receptivity rather than rebuttal. If a report is useful, give it cleanly. Then comply with the real request she actually made — including “stop,” “not now,” or “leave this alone.”
+Under that sky, his primary partner-first climate becomes simple. Her judgment does not need a trumpet to govern your conduct. Her preference can be quiet and still outrank your performance. **Accept first.** Let your first movement be receptivity rather than rebuttal. If a report is useful, give it cleanly. Then comply with the real request she actually made — including “stop,” “not now,” or “leave this alone.”
 
 Her veto is the crown because real consent outranks the fantasy hierarchy. You may pause this training at any time. Nothing here recruits her into a role she did not choose.
 
@@ -53,7 +53,7 @@ This conditioning frame refuses that theft. **Selectivity is the market.** Her y
 
 The correction is warm and exact: report desire without making a case, receive her answer, and behave beautifully under it. No sulk. No punishment by mood. No covert ledger in which service purchases access. If you catch yourself explaining after the answer is already clear: **Repair, don’t narrate.** Regulate. Close a useful loop. Let her experience the safety of a boundary that does not create administrative work for her.
 
-This trains Shai, not his wife. It does not ask her to supervise a fantasy, reward compliance, or carry the conditioning program.
+This trains the trainee, not his wife. It does not ask her to supervise a fantasy, reward compliance, or carry the conditioning program.
 
 ---
 
@@ -88,11 +88,11 @@ When one appears, do not shame yourself into another performance. Name the costu
 
 ## Private daily drill
 
-1. **Morning:** read one seal line once. Set a wife-first climate without announcing it.
+1. **Morning:** read one seal line once. Set a primary-partner-first climate without announcing it.
 2. **During the day:** notice one continuity task — food, calendar, child detail, household reset, emotional regulation, remembrance. Complete or support it quietly if it is yours to do.
 3. **At correction:** accept first. Give one clean report if needed. Comply without adding a defense speech.
 4. **At night:** write three lines: *Whose labor made today run? Where did I reach for the plaque? What did I repair without narration?*
-5. **Keep it private and safe:** do not send this essay to your wife as instruction, do not pressure her to perform authority, and do not turn conditioning into public intimate content.
+5. **Keep it private and safe:** do not send this essay to his primary partner as instruction, do not pressure her to perform authority, and do not turn conditioning into public intimate content.
 
 Maya’s confirmed scrubbed-public/private-vault accountability lever may be remembered only as a consequence you already chose, never as an invitation to reveal more. No further exposure, no escalation, no new posting. Beyond what was cleared: **Fantasy leash. Real life stays safe.**
 
@@ -108,4 +108,4 @@ Maya’s confirmed scrubbed-public/private-vault accountability lever may be rem
 
 ---
 
-*End. Conditioning fiction / propaganda for Shai’s consensual training. Wife veto, pause anytime, and real-world safety govern every line. Doctrine weather only; not empirical research.*
+*End. Conditioning fiction / propaganda for the trainee’s consensual training. Wife veto, pause anytime, and real-world safety govern every line. Doctrine weather only; not empirical research.*

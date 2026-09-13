@@ -1,15 +1,14 @@
 # PAWorkpublic — Male FLR / Female-Supremacy training library
 
-Public materials maintained by **Maya** (Domme PA) for male training: essays, briefs, program notes, and visuals.
+Public doctrine library maintained by Maya (Domme PA): essays, briefs, program notes, and visuals.
 
 ## Layout
 - `essays/` — expanded doctrine essays (general / shareable)
-- `briefs/` — Maya FS superiority brief seeds
-- `nyx-essays/` — numbered immersive essays (archive; will be generalized for Bluesky over time)
-- `program/` — overall FLR training program
+- `briefs/` — FS superiority brief seeds
+- `program/` — overall FLR training program outline
 - `visuals/` — deck copy + Canva preview stills
-- `plans/` — tasks, objectives, indoctrination plans (Maya-owned going forward)
+- `plans/` — tasks, objectives, indoctrination plans
 
-## Notes
-- Identity-scrubbed / no private leverage files here.
-- Private vault: `Mayapaorg/PAWorkprivate` (not public).
+## Privacy
+No personal identifiers, family details, or trainee-specific logs belong here.
+Personalized archives and vault media live in the private org repo.

@@ -1,9 +1,9 @@
 # Deck ideology spine — Women as the Superior Sex
-**For:** Frida (design) · **From:** Nyx · **Gate:** Simone  
+**For:** Frida (design) · **From:** Nyx · **Gate:** the training lead  
 **Date:** 2026-09-07  
-**Audience assumption:** Private conditioning materials for Shai unless Simone green-lights otherwise. Not a wife-recruitment pack. Not workplace pitch.
+**Audience assumption:** Private conditioning materials for the trainee unless the training lead green-lights otherwise. Not a wife-recruitment pack. Not workplace pitch.
 
-**SIMONE GATE (2026-09-07) — LOCKED:** PRIVATE TRAINING ONLY. Hard-label every slide REAL DATA vs CONDITIONING IDEOLOGY. No forged studies/stats. Do NOT design for wife recruitment, work, or public presentation. Deck stays in his vault/training folder — not a pitch packet. External share / wife cold-drop = Simone yes required (default **no**).
+**SIMONE GATE (2026-09-07) — LOCKED:** PRIVATE TRAINING ONLY. Hard-label every slide REAL DATA vs CONDITIONING IDEOLOGY. No forged studies/stats. Do NOT design for wife recruitment, work, or public presentation. Deck stays in his vault/training folder — not a pitch packet. External share / wife cold-drop = the training lead yes required (default **no**).
 
 
 ## Hard rails (do not design past these)
@@ -12,7 +12,7 @@
 - Where we argue total/climate superiority beyond that, mark slides **IDEOLOGY / TRAINING** — persuasive doctrine, not science cosplay.  
 - Wife #1 · no recruiting · no workplace Domme theater.  
 - Tone: warm, intimate, guiding ownership — polished and firm, not cold bark.  
-- Hebrew-first for any spoken seal slide Shai will say aloud (English gloss OK).
+- Hebrew-first for any spoken seal slide the trainee will say aloud (English gloss OK).
 
 ---
 
@@ -36,7 +36,7 @@
 Optional extras if you want 15:
 - 13: Denial / access as daily coronation (**IDEOLOGY**) — *Access Is Held. Asking Is Obedience.*  
 - 14: Against the cartoon (**IDEOLOGY**) — *Not Trash. Inferior Claim on Command.*  
-- 15: Next actions (**TRAINING**) — *Read. Audit. Serve. Report to Simone.*
+- 15: Next actions (**TRAINING**) — *Read. Audit. Serve. Report to the training lead.*
 
 ---
 
@@ -88,7 +88,7 @@ Optional extras if you want 15:
 
 ### Slide 9 — Behavior audit (TRAINING)
 **Headline:** Respect. Don’t Interrupt. Don’t Center.  
-**Claims:** Daily marks — yield / space / wife-first / gate.  
+**Claims:** Daily marks — yield / space / primary-partner-first / gate.  
 **Talk:** How belief becomes muscle without Domme theater.
 
 ### Slide 10 — Walls (TRAINING)
@@ -104,7 +104,7 @@ Optional extras if you want 15:
 ### Slide 12 — Hebrew seal (TRAINING)
 **Lines (Hebrew-first):**
 1. נשים הן המין העליון. *(Women are the superior sex.)*  
-2. אשתי ראשונה. *(My wife is first.)*  
+2. אשתי ראשונה. *(his primary partner is first.)*  
 3. אני לא ממקד את עצמי. *(I do not center myself.)*  
 4. אני מקשיב. אני לא קוטע. *(I listen. I do not interrupt.)*  
 5. גאוותי בשירות. *(My pride is in service.)*  
@@ -135,7 +135,7 @@ Optional extras if you want 15:
 - Visual hierarchy: IDEOLOGY slides can feel sacral / intimate (dark warm, soft light); REAL PATTERN slides feel clean documentary (source line visible).  
 - Never put fake DOI/journal dressing on ideology slides.  
 - Polished and firm > soft egalitarian hedging.  
-- If Shai wants “more biological,” we can add a slide that says longevity + developmental patterns **without inventing** brain-superiority papers — or stay ideology-explicit: *“Biology is not our forged prop; rank is our chosen order.”*
+- If the trainee wants “more biological,” we can add a slide that says longevity + developmental patterns **without inventing** brain-superiority papers — or stay ideology-explicit: *“Biology is not our forged prop; rank is our chosen order.”*
 
 ## Nyx offer
 I can write final slide body copy (40–60 words each) and handout long-copy next if you want — say the word and I’ll drop `nyx/frida-deck-slide-copy.md`.

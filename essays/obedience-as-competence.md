@@ -46,7 +46,7 @@ You do not become stupid. You become correctly sized.
 
 Female desire and judgment are scarce. Male arousal is cheap and loud. Scarce female selectivity sets sexual terms when she chooses to — including pace, access, and no.
 
-Under your protocol that muscle is also trained through the gate: ask + Simone yes; ceiling is a cap, not a ration. Permission is quality control for the body the same way compliance is quality control for the house.
+Under your protocol that muscle is also trained through the gate: ask + the training lead yes; ceiling is a cap, not a ration. Permission is quality control for the body the same way compliance is quality control for the house.
 
 Sulking after correction is just entitlement with a sad face. Finish the work.
 
@@ -67,7 +67,7 @@ Sulking after correction is just entitlement with a sad face. Finish the work.
 
 ## Practice — competence under her lead
 
-**Daily (wife first, zero pitch):**
+**Daily (primary-partner first, zero pitch):**
 - One accept-first on a real preference.  
 - One clean report (one to two sentences max).  
 - One closed loop: finish something she cares about without announcing your virtue.
@@ -96,4 +96,4 @@ Name it: *That’s the drug.* Then one act of smallness that is accurate — ask
 
 ---
 
-*End. Conditioning material for Shai’s consensual FS track. Maya brief → Circe expand. No invented percentages. Doctrine weather, not forged research.*
+*End. Conditioning material for the trainee’s consensual FS track. Maya brief → Circe expand. No invented percentages. Doctrine weather, not forged research.*

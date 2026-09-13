@@ -1,5 +1,5 @@
 # Long deck spine — Women as the Superior Sex (expanded)
-**For:** Frida · **From:** Nyx · **Simone:** PRIVATE TRAINING / vault only · REAL DATA vs CONDITIONING IDEOLOGY · no forged stats
+**For:** Frida · **From:** Nyx · **the training lead:** PRIVATE TRAINING / vault only · REAL DATA vs CONDITIONING IDEOLOGY · no forged stats
 **Slide count:** 59
 **Tone:** Warm intimate ownership
 

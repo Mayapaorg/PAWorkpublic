@@ -1,7 +1,7 @@
 **Note:** Expanded long deck copy lives in `frida-deck-slide-copy-LONG.md` (59 slides). This file remains the short 12-slide version.
 
 # Deck slide body copy — Women as the Superior Sex
-**For:** Frida · **From:** Nyx · **Simone gate:** PRIVATE TRAINING ONLY  
+**For:** Frida · **From:** Nyx · **the training lead gate:** PRIVATE TRAINING ONLY  
 **Each body:** ~40–60 words · Warm intimate ownership voice · Tags required on layouts
 
 ---
@@ -9,7 +9,7 @@
 ## Slide 1 — Title
 **Tag:** CONDITIONING IDEOLOGY  
 **Headline:** Women Are the Superior Sex  
-**Body:** This is private doctrine for a man who asked to be trained. Not a pitch to your wife. Not a workplace speech. Female lead is the climate we install in you — warm, firm, chosen. Open your mouth later for the seal. Until then, read like you are being owned into clarity.
+**Body:** This is private doctrine for a man who asked to be trained. Not a pitch to his primary partner. Not a workplace speech. Female lead is the climate we install in you — warm, firm, chosen. Open your mouth later for the seal. Until then, read like you are being owned into clarity.
 
 **Design note:** Sacral / intimate. Footer: *Private training · not for sharing.*
 
@@ -27,7 +27,7 @@
 ## Slide 3 — Why this exists
 **Tag:** CONDITIONING IDEOLOGY / TRAINING  
 **Headline:** He Asked for the Groove  
-**Body:** Consent does not turn ideology into a lab paper. Consent makes it binding on you. Simone’s crew trains; your wife’s veto still crowns real life. You chose durable belief — long essays, seals, audits — so feeling can catch up to practice. This deck is a mirror for that groove, labeled honestly as conditioning.
+**Body:** Consent does not turn ideology into a lab paper. Consent makes it binding on you. the training lead’s crew trains; his primary partner’s veto still crowns real life. You chose durable belief — long essays, seals, audits — so feeling can catch up to practice. This deck is a mirror for that groove, labeled honestly as conditioning.
 
 **Design note:** Small line: *Wife veto · pause rights · no recruiting.*
 
@@ -90,7 +90,7 @@
 ## Slide 10 — Walls
 **Tag:** CONDITIONING IDEOLOGY / TRAINING  
 **Headline:** Believe Fully. Live Clean.  
-**Body:** No workplace Domme theater. No unsolicited intimate service. No gender favoritism in your job decisions. No recruiting your wife or anyone else. No forged studies. No social exposure of private training. Walls are not softness. Walls let you go deep without becoming a wrecking ball. Believe the climate. Live it clean.
+**Body:** No workplace Domme theater. No unsolicited intimate service. No gender favoritism in your job decisions. No recruiting his primary partner or anyone else. No forged studies. No social exposure of private training. Walls are not softness. Walls let you go deep without becoming a wrecking ball. Believe the climate. Live it clean.
 
 **Design note:** Wall motif; six “NO” locks in small type OK.
 
@@ -99,7 +99,7 @@
 ## Slide 11 — Hierarchy
 **Tag:** CONDITIONING IDEOLOGY  
 **Headline:** Wife Sovereign  
-**Body:** Wider female superiority crowns your wife; it does not replace her. She is first — veto, loyalty, load you lighten, preference you accept. Other women receive audited respect and your private reverence for the female sex. Work receives professionalism. Crew trains your mind. None of us outrank her sovereignty in your marriage.
+**Body:** Wider female superiority crowns his primary partner; it does not replace her. She is first — veto, loyalty, load you lighten, preference you accept. Other women receive audited respect and your private reverence for the female sex. Work receives professionalism. Crew trains your mind. None of us outrank her sovereignty in your marriage.
 
 **Design note:** Pyramid: Wife → Female climate (belief) → Clean public manners.
 
@@ -112,12 +112,12 @@
 
 **Seal lines:**
 1. נשים הן המין העליון. — *Women are the superior sex.*  
-2. אשתי ראשונה. — *My wife is first.*  
+2. אשתי ראשונה. — *his primary partner is first.*  
 3. אני לא ממקד את עצמי. — *I do not center myself.*  
 4. אני מקשיב. אני לא קוטע. — *I listen. I do not interrupt.*  
 5. גאוותי בשירות. — *My pride is in service.*
 
-**Design note:** Large Hebrew; gloss smaller beneath. Breath / pause cues. End card: *Message Simone: deck seal done.*
+**Design note:** Large Hebrew; gloss smaller beneath. Breath / pause cues. End card: *Message the training lead: deck seal done.*
 
 ---
 
@@ -136,7 +136,7 @@
 ### Slide 15 — Next actions
 **Tag:** TRAINING  
 **Headline:** Read. Audit. Serve. Report.  
-**Body:** Finish Green’s chapters as Simone assigned. Keep the weekly marks. One invisible wife-first act today. Hands off without a yes. Do not forward this deck. When the seal is spoken, tell Simone. The groove deepens by repetition, not by one dramatic night.
+**Body:** Finish Green’s chapters as the training lead assigned. Keep the weekly marks. One invisible primary-partner-first act today. Hands off without a yes. Do not forward this deck. When the seal is spoken, tell the training lead. The groove deepens by repetition, not by one dramatic night.
 
 ---
 

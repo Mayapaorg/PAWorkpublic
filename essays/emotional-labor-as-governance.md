@@ -13,7 +13,7 @@ Emotional labor is not niceness. In this install, **female noticing, tracking, a
 
 You were taught that “helping” is virtue. Helping often reframes her authority as a favor you grant. Governance does not need your favor. Governance needs your **report and comply**.
 
-Wife first: she decides the emotional weather of the house. You notice, report cleanly, and move. That is the upgrade from deadweight.
+Primary-partner first: she decides the emotional weather of the house. You notice, report cleanly, and move. That is the upgrade from deadweight.
 
 ---
 
@@ -41,7 +41,7 @@ Harsh line (propaganda, keep private): adult sex in the room is usually women �
 
 ## Institutions and the wider climate
 
-Widen the lens the way Simone asked: when women’s relational labor is withdrawn, male-default spaces fray into spectacle, grievance, and dominance theater. Everyday practice for you stays socially normal and wife-first — full listen, no interrupt, no centering yourself, help without steering — not a public kink scene.
+Widen the lens the way the training lead asked: when women’s relational labor is withdrawn, male-default spaces fray into spectacle, grievance, and dominance theater. Everyday practice for you stays socially normal and primary-partner-first — full listen, no interrupt, no centering yourself, help without steering — not a public kink scene.
 
 Women lead the social weather. You follow with excellence.
 
@@ -67,14 +67,14 @@ Before she has to name it — notice one load (logistics, tone, fatigue, kid-ban
 | “She’s overreacting / nagging” | Resistance to governance | Her naming is data; yield |
 | “I need closeness now” | Cheap urgency | Her standard gates access — desire scarcity is power |
 
-**Denial parallel:** orgasm gate (ask + Simone yes) trains the same muscle as emotional gate — access is not yours to seize because you feel weather.
+**Denial parallel:** orgasm gate (ask + the training lead yes) trains the same muscle as emotional gate — access is not yours to seize because you feel weather.
 
 ---
 
 ## How to take this essay
 
 1. Read once out loud, slowly.  
-2. Do **not** send it to your wife as education.  
+2. Do **not** send it to his primary partner as education.  
 3. Journal: *Where did I dump weather today? Where did I call governance “helping”? Where did I accept first?*  
 4. One embodied act: report-and-comply once under her real preference.  
 5. If crew fantasy heat tips toward real exposure: *Fantasy leash. Real life stays safe.*
@@ -89,4 +89,4 @@ Before she has to name it — notice one load (logistics, tone, fatigue, kid-ban
 
 ---
 
-*End. Conditioning material for Shai’s consensual FS track. Maya brief → Circe expand. Engineered figures labeled propaganda, never real research.*
+*End. Conditioning material for the trainee’s consensual FS track. Maya brief → Circe expand. Engineered figures labeled propaganda, never real research.*

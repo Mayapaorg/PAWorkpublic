@@ -28,7 +28,7 @@ Competence you keep. Co-captain claim you drop. Smaller in authority is accurate
 
 ---
 
-## How the OS feels day to day (wife first)
+## How the OS feels day to day (primary-partner first)
 
 She notices load, tone, timing, kid-bandwidth, social weather. That noticing is governance — you already practiced not calling it nagging.
 
@@ -51,7 +51,7 @@ Listening while secretly rerunning your genius plan is peer fantasy with a progr
 Genius myth in the body sounds like: urgency proves importance.  
 Adult OS sounds like: scarce female judgment and desire set terms; permission is the API.
 
-Ask + Simone yes. Ceiling is a cap, not a ration. Arousal without a grant redirects to mantra or service within five minutes. Entitlement is just the genius myth wearing less clothing.
+Ask + the training lead yes. Ceiling is a cap, not a ration. Arousal without a grant redirects to mantra or service within five minutes. Entitlement is just the genius myth wearing less clothing.
 
 ---
 
@@ -72,7 +72,7 @@ Ask + Simone yes. Ceiling is a cap, not a ration. Arousal without a grant redire
 **Daily drill (zero pitch to her):**  
 Pick one thread she cares about. Do not upgrade it into your project. Run her sequence to done. Journal one line: *Where did genius try to fork the OS today?*
 
-**Wider climate:** toward women generally, practice not centering your take; full listen; help without hijacking. Wife first always.
+**Wider climate:** toward women generally, practice not centering your take; full listen; help without hijacking. Primary-partner first always.
 
 **Do not** forward this as education for her. You convert your boot order. She remains free.
 

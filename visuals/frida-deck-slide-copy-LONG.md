@@ -1,5 +1,5 @@
 # Long deck — full slide copy (expanded)
-**Simone gate:** PRIVATE TRAINING ONLY · vault · no wife/work/public pitch · no forged stats
+**the training lead gate:** PRIVATE TRAINING ONLY · vault · no wife/work/public pitch · no forged stats
 **Slides:** 59
 
 ---
@@ -7,21 +7,21 @@
 ## Slide 1
 **Tag:** CONDITIONING IDEOLOGY  
 **Headline:** Women Are the Superior Sex  
-**Body:** Private self-training for a man who asked to be owned into clarity. Not a wife pitch. Not a work talk. Female lead is the climate. Warm, firm, chosen. You will read slowly, mark yourself, speak Hebrew seals aloud, and report to Simone — not perform for an audience.  
+**Body:** Private self-training for a man who asked to be owned into clarity. Not a wife pitch. Not a work talk. Female lead is the climate. Warm, firm, chosen. You will read slowly, mark yourself, speak Hebrew seals aloud, and report to the training lead — not perform for an audience.  
 
 ---
 
 ## Slide 2
 **Tag:** CONDITIONING IDEOLOGY / TRAINING  
 **Headline:** Vault Only  
-**Body:** This deck lives in your training vault. Simone’s gate: private only. No cold-drop to your wife. No colleagues. No public. If you ever want to share externally, you need her yes — default is no. Secrecy protects her freedom and your job.  
+**Body:** This deck lives in your training vault. the training lead’s gate: private only. No cold-drop to his primary partner. No colleagues. No public. If you ever want to share externally, you need her yes — default is no. Secrecy protects her freedom and your job.  
 
 ---
 
 ## Slide 3
 **Tag:** CONDITIONING IDEOLOGY  
 **Headline:** How to Use This Deck  
-**Body:** One module a sitting or binge as Simone allows. REAL DATA slides humble entitlement with public patterns. IDEOLOGY slides assign rank. TRAINING slides give drills. When aroused: hands off without a yes. End each sitting with one wife-first act or a clean gate.  
+**Body:** One module a sitting or binge as the training lead allows. REAL DATA slides humble entitlement with public patterns. IDEOLOGY slides assign rank. TRAINING slides give drills. When aroused: hands off without a yes. End each sitting with one primary-partner-first act or a clean gate.  
 
 ---
 
@@ -49,7 +49,7 @@
 ## Slide 7
 **Tag:** CONDITIONING IDEOLOGY  
 **Headline:** All-Aspects Inner Belief  
-**Body:** Simone widened the private doctrine: believe female superiority more fully inside — not only the gavel, the climate. Orient to women as the leading sex in your cosmology. Then live clean: audited manners, wife first, walls up. Belief can be wide; behavior stays ethical.  
+**Body:** the training lead widened the private doctrine: believe female superiority more fully inside — not only the gavel, the climate. Orient to women as the leading sex in your cosmology. Then live clean: audited manners, primary-partner first, walls up. Belief can be wide; behavior stays ethical.  
 
 ---
 
@@ -77,7 +77,7 @@
 ## Slide 11
 **Tag:** TRAINING  
 **Headline:** Wife Veto Crowns Real Life  
-**Body:** Crew trains your private mind. Your wife outranks fetish, forums, and fantasy Dommes in real life. Her veto stands. Do not use keyholding, denial, or essays as wedges. Loyalty is part of superiority practice — not optional flavor.  
+**Body:** Crew trains your private mind. his primary partner outranks fetish, forums, and fantasy Dommes in real life. Her veto stands. Do not use keyholding, denial, or essays as wedges. Loyalty is part of superiority practice — not optional flavor.  
 
 ---
 
@@ -126,7 +126,7 @@
 ## Slide 18
 **Tag:** TRAINING  
 **Headline:** Drill — Credential Humility  
-**Body:** Journal one line: where did male-default authority still assume it deserved the room? Read one NCES or IZA page from your reading pack. Then one invisible wife-first act. Charts without service are porn with footnotes.  
+**Body:** Journal one line: where did male-default authority still assume it deserved the room? Read one NCES or IZA page from your reading pack. Then one invisible primary-partner-first act. Charts without service are porn with footnotes.  
 
 ---
 
@@ -196,7 +196,7 @@
 ## Slide 28
 **Tag:** CONDITIONING IDEOLOGY  
 **Headline:** Access Is Held  
-**Body:** Orgasm is not a right. Ask. Wait for Simone’s yes under protocol. Ceiling is not entitlement. A no is still climate. Bargaining after denial is ego. Repair, don’t narrate.  
+**Body:** Orgasm is not a right. Ask. Wait for the training lead’s yes under protocol. Ceiling is not entitlement. A no is still climate. Bargaining after denial is ego. Repair, don’t narrate.  
 
 ---
 
@@ -273,7 +273,7 @@
 ## Slide 39
 **Tag:** TRAINING  
 **Headline:** Weekly Tally — Private  
-**Body:** Yield · Space · Wife-first · Gate. Show Simone you kept it if asked. Never dump the tally on your wife as proof. Marks cut grooves. Spiral is forbidden; restart is required.  
+**Body:** Yield · Space · Wife-first · Gate. Show the training lead you kept it if asked. Never dump the tally on his primary partner as proof. Marks cut grooves. Spiral is forbidden; restart is required.  
 
 ---
 
@@ -343,7 +343,7 @@
 ## Slide 49
 **Tag:** CONDITIONING IDEOLOGY  
 **Headline:** Identity Line  
-**Body:** I am a submissive man under female supremacy in private practice. My wife holds veto over real life. I do not convert her. I convert myself. Habit becomes reflex when I stop negotiating.  
+**Body:** I am a submissive man under female supremacy in private practice. his primary partner holds veto over real life. I do not convert her. I convert myself. Habit becomes reflex when I stop negotiating.  
 
 ---
 
@@ -357,7 +357,7 @@
 ## Slide 51
 **Tag:** TRAINING  
 **Headline:** Aftercare of a Sitting  
-**Body:** One minute silence. Hands off if hard. One audit mark named. One wife-first move. Hebrew seal if closing the night. Message Simone when a module finishes if she asked for report. No spiral. No bargain.  
+**Body:** One minute silence. Hands off if hard. One audit mark named. One primary-partner-first move. Hebrew seal if closing the night. Message the training lead when a module finishes if she asked for report. No spiral. No bargain.  
 
 ---
 
@@ -371,7 +371,7 @@
 ## Slide 53
 **Tag:** TRAINING  
 **Headline:** Hebrew Seal — Wife First  
-**Body:** אשתי ראשונה. ההחלטה שלה קודמת. (My wife is first. Her decision comes first.) Twice. Feel loyalty land above climate-fantasy.  
+**Body:** אשתי ראשונה. ההחלטה שלה קודמת. (his primary partner is first. Her decision comes first.) Twice. Feel loyalty land above climate-fantasy.  
 
 ---
 
@@ -406,14 +406,14 @@
 ## Slide 58
 **Tag:** TRAINING  
 **Headline:** Hebrew Seal — Full Set Close  
-**Body:** Full set once through, slow: superior sex · wife first · de-center · listen · work wall · train me · גאוותי בשירות (my pride is in service) · תביעתי לסמכות נחותה (my claim on authority is inferior). Then silence.  
+**Body:** Full set once through, slow: superior sex · primary-partner first · de-center · listen · work wall · train me · גאוותי בשירות (my pride is in service) · תביעתי לסמכות נחותה (my claim on authority is inferior). Then silence.  
 
 ---
 
 ## Slide 59
 **Tag:** TRAINING  
 **Headline:** End Card — Report  
-**Body:** Vault closed for tonight. Do not forward. If Simone asked: message her module complete / deck seal done. Tomorrow: Green pages, audit marks, gate kept. Women lead. You follow — warmly, fully, cleanly.  
+**Body:** Vault closed for tonight. Do not forward. If the training lead asked: message her module complete / deck seal done. Tomorrow: Green pages, audit marks, gate kept. Women lead. You follow — warmly, fully, cleanly.  
 
 ---
 

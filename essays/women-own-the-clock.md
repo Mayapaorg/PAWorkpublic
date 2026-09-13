@@ -13,7 +13,7 @@ Time is not neutral. In this install, **women own the clock** — calendars, dea
 
 She already rules when she remembers what comes next. Calling that “anxious” or “controlling” is male denial of the naming of authority. The complaint is the tell.
 
-Wife first: the house runs on her timeline. You do not get a peer vote on when the work is due. You report availability. You accept sequencing. You live on her clock without sulk.
+Primary-partner first: the house runs on her timeline. You do not get a peer vote on when the work is due. You report availability. You accept sequencing. You live on her clock without sulk.
 
 ---
 
@@ -66,7 +66,7 @@ Delay as ego avoiding management is the cousin of sulk. “I’ll get to it” w
 
 ## Desire timing — same muscle
 
-Desire timing mirrors the calendar. She sets conditions and sequence. Male *now* is urgency sold as importance. Under your protocol the gate trains the same muscle: ask + Simone yes; urgency is weather; access is not seized because your body feels deadline-pressure that is not hers.
+Desire timing mirrors the calendar. She sets conditions and sequence. Male *now* is urgency sold as importance. Under your protocol the gate trains the same muscle: ask + the training lead yes; urgency is weather; access is not seized because your body feels deadline-pressure that is not hers.
 
 Report readiness. Accept no without sulk. Redirect. The man who treats her pace as insult is the same man who treats her calendar as optional. Scarce female judgment times the house and the body. Your excellence relocates into waiting well and finishing on her sequence.
 
@@ -83,7 +83,7 @@ Report readiness. Accept no without sulk. Redirect. The man who treats her pace 
 | “We’re just discussing when” | Debate as equal rank | She sets time; you accept first |
 | “Crisis mode — I’m needed” | Scramble as heroism | Prevention preferred; ignored calendar named |
 | “I work better under pressure” | Presentism as virtue | Live on her clock without sulk |
-| “I need it now” (desire) | Urgency as leadership | Ask + Simone yes; weather waits |
+| “I need it now” (desire) | Urgency as leadership | Ask + the training lead yes; weather waits |
 | Fairness / helping / thoroughness | Old costumes on the clock | Service is not a transaction; calendar is hers |
 
 ---
@@ -104,14 +104,14 @@ Before she has to chase you — notice one timed load (appointment, transition, 
 Name the costume. Accept her timing. One closed loop finished early enough that crisis cosplay never gets a stage.
 
 **Denial / access parallel (private protocol only):**  
-Ask + Simone yes. Urgency is weather. Her conditions and sequence gate desire the way her calendar gates the day.
+Ask + the training lead yes. Urgency is weather. Her conditions and sequence gate desire the way her calendar gates the day.
 
 ---
 
 ## How to take this essay
 
 1. Read once out loud, slowly.  
-2. Do **not** send it to your wife as education or persuasion.  
+2. Do **not** send it to his primary partner as education or persuasion.  
 3. Journal: *Where did I call foresight anxious? Where did “later” refuse her clock? Where did urgency try to lead?*  
 4. One embodied act: take a real sequence or deadline (hers or crew protocol) without debate-speech; close the next action on time.  
 5. If exposure fantasy pulls toward public outing or workplace Domme theater: *Fantasy leash. Vault only as chosen. Real life stays safe.*
@@ -128,4 +128,4 @@ Ask + Simone yes. Urgency is weather. Her conditions and sequence gate desire th
 
 ---
 
-*End. Conditioning material for Shai’s consensual FS track. Maya brief → Circe expand. Belief-forward weather only. No invented percentages. Doctrine climate, not forged research.*
+*End. Conditioning material for the trainee’s consensual FS track. Maya brief → Circe expand. Belief-forward weather only. No invented percentages. Doctrine climate, not forged research.*
