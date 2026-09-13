@@ -1,0 +1,91 @@
+{
+  "deck": "Frida long deck part 2",
+  "slides_requested": "31-59",
+  "vault_folder_id": "FAHUkckKLwA",
+  "vault_folder_url": "https://www.canva.com/folder/FAHUkckKLwA",
+  "namespace": "user-canva",
+  "style": {
+    "background": "#0F0B0A",
+    "accent": "#C45C6A",
+    "text": "#F4EDE6",
+    "footer": "Private training \u00b7 not for sharing",
+    "badges": [
+      "REAL DATA",
+      "CONDITIONING IDEOLOGY",
+      "TRAINING"
+    ]
+  },
+  "stopped_reason": "Canva generate-design quota exhausted",
+  "modules": [
+    {
+      "module": "M7",
+      "title": "Ego costumes + interrupt cue",
+      "slide_range": "31-35",
+      "status": "done",
+      "design_id": "DAHUkR238MQ",
+      "edit_url": "https://www.canva.com/d/K3ZzZm5IGDF5XSE",
+      "view_url": "https://www.canva.com/d/IGES5gKMN9Nqlij",
+      "page_count": 5,
+      "job_id": "db386bc7-cb11-44fc-a38e-5fcee178597b",
+      "candidate_id": "dg-d6be1aef-07b4-4dbd-99ab-463fe7c5db49",
+      "notes": "First generate failed; softened retry succeeded. Darkest sacral candidate (c3) selected. Moved to vault FAHUkckKLwA."
+    },
+    {
+      "module": "M8",
+      "title": "Behavior audit + work translation",
+      "slide_range": "36-40",
+      "status": "done",
+      "design_id": "DAHUkfEAmr0",
+      "edit_url": "https://www.canva.com/d/iobVnXIITBt9qoP",
+      "view_url": "https://www.canva.com/d/2jtor_lokzAYOCc",
+      "page_count": 5,
+      "job_id": "c2c38f1a-9427-4692-a3d3-c4c2eaed688a",
+      "candidate_id": "dg-201efc34-3418-4771-ae54-8cbbbf622f10",
+      "notes": "First generate failed; softened retry succeeded. Darkest sacral candidate (c2) selected. Moved to vault FAHUkckKLwA. Canva title: Presentation - Behavior Audit."
+    },
+    {
+      "module": "M9",
+      "title": "M9 Wife-First \u2014 Pyramid (slides 41\u201345)",
+      "slide_range": "41-45",
+      "status": "complete_via_copy_edit",
+      "design_id": "DAHUkYr4gI8",
+      "edit_url": "https://www.canva.com/d/iC04AZlUwb3077A",
+      "view_url": null,
+      "page_count": 5,
+      "notes": "Created by copy-design from Behavior Audit + manual rewrite."
+    },
+    {
+      "module": "M10",
+      "title": "Walls + identity + aftercare",
+      "slide_range": "46-51",
+      "status": "not_started",
+      "design_id": null,
+      "edit_url": null,
+      "view_url": null,
+      "page_count": null,
+      "notes": "Blocked behind quota; generation stopped."
+    },
+    {
+      "module": "M11",
+      "title": "Hebrew seals",
+      "slide_range": "52-56",
+      "status": "not_started",
+      "design_id": null,
+      "edit_url": null,
+      "view_url": null,
+      "page_count": null,
+      "notes": "Blocked behind quota. Plan: English gloss prominent; include Hebrew in query; if fail, English-first with note Hebrew must be edited later."
+    },
+    {
+      "module": "M12",
+      "title": "Final seals + end/report",
+      "slide_range": "57-59",
+      "status": "not_started",
+      "design_id": null,
+      "edit_url": null,
+      "view_url": null,
+      "page_count": null,
+      "notes": "Blocked behind quota; 3 slides."
+    }
+  ]
+}

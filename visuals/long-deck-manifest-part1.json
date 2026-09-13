@@ -1,0 +1,104 @@
+{
+  "deck": "Frida long deck \u2014 part 1 (slides 1\u201330)",
+  "vault_folder_id": "FAHUkckKLwA",
+  "vault_folder_url": "https://www.canva.com/folder/FAHUkckKLwA",
+  "generated_at_pt": "2026-09-07 6:24 PM PT",
+  "canva_namespace": "user-canva",
+  "quota_status": "AI generate-design exhausted; continuing via copy-design + edit",
+  "modules": [
+    {
+      "module": "M1",
+      "slide_range": "1-5",
+      "topic": "Open/Vault",
+      "status": "complete",
+      "design_id": "DAHUkTguBxo",
+      "title": "Presentation - Frida Training",
+      "edit_url": "https://www.canva.com/d/RdliBTMkYz0xs3n",
+      "view_url": "https://www.canva.com/d/lrjFSvg1KiJgTYi",
+      "page_count": 5,
+      "candidate_job_id": "1969447b-d48b-4aad-8ff5-929eee93f306",
+      "candidate_id": "dg-0c0a221c-b8a0-4322-a8ee-e6c6f0a03ba8",
+      "retries": [
+        {
+          "attempt": 1,
+          "job_id": "3aead114-a3c0-468c-9db9-87cf44c21d89",
+          "result": "failed design_generation_error \u2014 softened title/body and retried"
+        },
+        {
+          "attempt": 2,
+          "job_id": "1969447b-d48b-4aad-8ff5-929eee93f306",
+          "result": "success \u2014 picked darkest typography-forward sacral candidate"
+        }
+      ],
+      "notes": "Slide 1 headline softened for generation to 'Who Steers the Climate' (source: Women Are the Superior Sex). Moved to vault FAHUkckKLwA."
+    },
+    {
+      "module": "M2",
+      "slide_range": "6-10",
+      "topic": "Thesis",
+      "status": "complete_via_copy_edit",
+      "design_id": "DAHUkX4Yuww",
+      "retries": [
+        {
+          "attempt": 1,
+          "job_id": "62ccebca-b364-45e7-a61f-4df997dd02eb",
+          "result": "failed design_generation_error"
+        },
+        {
+          "attempt": 2,
+          "result": "quota limit \u2014 User has reached their quota limit"
+        },
+        {
+          "attempt": 3,
+          "result": "quota limit again after wait \u2014 generation stopped per steering"
+        }
+      ],
+      "title": "M2 Thesis \u2014 Who Steers (slides 6\u201310)",
+      "edit_url": "https://www.canva.com/d/JVyc2fK4_n9gFJI",
+      "view_url": "https://www.canva.com/d/BL_Er_lylsczjlZ",
+      "page_count": 5,
+      "notes": "Created by copy-design from M1 + manual text rewrite (no AI gen)."
+    },
+    {
+      "module": "M3",
+      "slide_range": "11-15",
+      "topic": "Rails + first Education REAL",
+      "status": "not_started_quota",
+      "design_id": null,
+      "notes": "First generate-design call hit quota limit immediately; no retry per steering."
+    },
+    {
+      "module": "M4",
+      "slide_range": "16-20",
+      "topic": "Education/Verbal REAL + ideology bridge",
+      "status": "not_started_quota",
+      "design_id": null
+    },
+    {
+      "module": "M5",
+      "slide_range": "21-25",
+      "topic": "Visuospatial honesty + Longevity REAL + staying-power ideology",
+      "status": "not_started_quota",
+      "design_id": null
+    },
+    {
+      "module": "M6",
+      "slide_range": "26-30",
+      "topic": "Compass/Preference + Access/Denial/Pride",
+      "status": "not_started_quota",
+      "design_id": null
+    }
+  ],
+  "successful_designs": [
+    {
+      "module": "M1",
+      "slide_range": "1-5",
+      "design_id": "DAHUkTguBxo",
+      "title": "Presentation - Frida Training",
+      "edit_url": "https://www.canva.com/d/RdliBTMkYz0xs3n",
+      "view_url": "https://www.canva.com/d/lrjFSvg1KiJgTYi",
+      "page_count": 5,
+      "candidate_job_id": "1969447b-d48b-4aad-8ff5-929eee93f306"
+    }
+  ]
+}
