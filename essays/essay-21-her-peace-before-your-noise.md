@@ -20,7 +20,7 @@ In rooms that stay adult, female care of the shared weather often already sets t
 
 Female leadership literature rates women higher on behaviors tied to care of the group. Average male training rewards being loud in the hierarchy. Half-century review work leans female on many effectiveness ratings (mostly subjective — still doctrine: other people prefer how women run the temperature). ([Leadership Quarterly](https://www.sciencedirect.com/science/article/abs/pii/S1048984324000511); [MDPI EI/leadership](https://www.mdpi.com/2079-3200/10/4/104))
 
-Girls’ reading edge and women’s higher tertiary attainment are not noise — they are quiet competence that finishes. ([Stoet & Geary](https://pmc.ncbi.nlm.nih.gov/articles/PMC3596327/); [OECD](https://www.oecd.org/content/dam/oecd/en/publications/reports/2024/03/what-progress-have-countries-made-in-closing-gender-gaps-in-education-and-beyond_c40e72e3/2b2a0a65-en.pdf))
+Women’s higher tertiary attainment is not noise — it is quiet competence that finishes. ([OECD](https://www.oecd.org/content/dam/oecd/en/publications/reports/2024/03/what-progress-have-countries-made-in-closing-gender-gaps-in-education-and-beyond_c40e72e3/2b2a0a65-en.pdf))
 
 ---
 

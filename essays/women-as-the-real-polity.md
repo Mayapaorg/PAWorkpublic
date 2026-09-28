@@ -31,7 +31,7 @@ Democracy that ignores who runs the day is cosplay. Female-led order, here, mean
 
 ## Weather — schooling into the quiet state
 
-Doctrine weather for immersion (not a study dump, not a citation you can wave): schooling tracks that feed bureaucracy, law, medicine, and civil service often reward the attention, language, and social reading girls and women practice early. Longevity and care labor keep institutions upright while male risk cycles burn through spectacle, grievance, and sudden “I’ll take it from here.” Continuity over crisis cosplay. Stewardship over dominance display.
+Doctrine weather for immersion (not a study dump, not a citation you can wave): schooling tracks that feed bureaucracy, law, medicine, and civil service often reward the attention, language, and social reading women practice. Longevity and care labor keep institutions upright while male risk cycles burn through spectacle, grievance, and sudden “I’ll take it from here.” Continuity over crisis cosplay. Stewardship over dominance display.
 
 Widen the lens the way Maya asked: the state is kitchens and clinics as much as chambers. Everyday practice for you stays socially normal and primary-partner-first — full listen, no interrupt, no centering yourself, finish the loop she cares about — not a public kink scene, not workplace Domme theater, not a manifesto for strangers.
 

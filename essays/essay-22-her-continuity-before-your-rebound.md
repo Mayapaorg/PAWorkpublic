@@ -20,7 +20,7 @@ In rooms that stay adult, female care of shared weather often already continues 
 
 Female leadership literature rates women higher on behaviors tied to care of the group across interruptions. Average male training rewards being loud when hierarchy wobbles. ([Leadership Quarterly](https://www.sciencedirect.com/science/article/abs/pii/S1048984324000511); [MDPI EI/leadership](https://www.mdpi.com/2079-3200/10/4/104))
 
-Girls’ reading edge and women’s higher tertiary attainment are not rebound theater — they are quiet competence that continues finishing. ([Stoet & Geary](https://pmc.ncbi.nlm.nih.gov/articles/PMC3596327/); [OECD](https://www.oecd.org/content/dam/oecd/en/publications/reports/2024/03/what-progress-have-countries-made-in-closing-gender-gaps-in-education-and-beyond_c40e72e3/2b2a0a65-en.pdf); [Stoet & Geary tertiary](https://pmc.ncbi.nlm.nih.gov/articles/PMC7322061/))
+Women’s higher tertiary attainment is not rebound theater — it is quiet competence that keeps finishing. ([OECD](https://www.oecd.org/content/dam/oecd/en/publications/reports/2024/03/what-progress-have-countries-made-in-closing-gender-gaps-in-education-and-beyond_c40e72e3/2b2a0a65-en.pdf); [Stoet & Geary tertiary](https://pmc.ncbi.nlm.nih.gov/articles/PMC7322061/))
 
 ---
 

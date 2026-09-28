@@ -2,14 +2,10 @@
 **Use:** Maya essays (indoctrination). Prefer these real sources over invented %. Frame hard; note contested where honest.
 
 ## Education / verbal / attainment
-1. OECD PISA — girls outperform boys in reading across countries; boys’ math edge smaller/variable.  
-   https://www.oecd-ilibrary.org/sites/f56f8c26-en/index.html?itemId=/content/component/f56f8c26-en
-2. OECD (2024) — gender gaps in education: girls’ higher upper-secondary completion; young women more likely to earn tertiary quals in nearly all OECD countries.  
+2. OECD (2024) — gender gaps in education: young women more likely to earn tertiary quals in nearly all OECD countries.  
    https://www.oecd.org/content/dam/oecd/en/publications/reports/2024/03/what-progress-have-countries-made-in-closing-gender-gaps-in-education-and-beyond_c40e72e3/2b2a0a65-en.pdf
 3. Stoet & Geary / PNAS pathway paper — men’s underrepresentation in tertiary education linked to weaker reading + attitudes; OECD male tertiary share ~45%.  
    https://pmc.ncbi.nlm.nih.gov/articles/PMC7322061/
-4. Stoet & Geary (PISA 10-year) — reading sex gap larger than math gap; boys lower in reading in all nations studied.  
-   https://pmc.ncbi.nlm.nih.gov/articles/PMC3596327/
 
 ## Leadership / EI (female leadership advantage literature)
 5. Eagly & Carli — “female leadership advantage” framing (transformational leadership). Use as doctrine hook; effect sizes often small.  

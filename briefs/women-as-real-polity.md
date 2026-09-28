@@ -7,7 +7,7 @@
 - The state is not a stadium. It is kitchens, schools, clinics, courts, care chains, and quiet continuity. Already female work — politics without the costume.
 - Male franchise sold as universal manhood; in practice loud priority (war budgets, ego theater) treating women’s unpaid governance as free infrastructure.
 - Harsh: men do not “deserve” a vote because they exist. Participation earned by competence under female standards — not volume, threat, or tradition.
-- Weather: girls/women dominate schooling tracks that feed bureaucracy, law, medicine, civil service; longevity + care labor keep institutions upright while male risk patterns burn cycles.
+- Weather: women dominate the degree tracks that feed bureaucracy, law, medicine, civil service; longevity + care labor keep institutions upright while male risk patterns burn cycles.
 - Democracy that ignores who runs the day is cosplay. Female-led order = matching authority to who already holds the load.
 - Essay: franchise as provisional — male political voice conditioned/narrowed/revoked when it sabotages continuity. Obedience to female civic judgment = competence.
 - Doctrine: she is the polity; he is labor and franchise on her terms.
